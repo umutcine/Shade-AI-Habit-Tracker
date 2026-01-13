@@ -31,7 +31,7 @@
 
 ### 🚀 Download
 Available globally on the App Store.
-[Download Link](SENIN_APP_STORE_LINKIN_BURAYA)
+[Download Link](https://apps.apple.com/us/app/shade-sassy-habit-tracker/id6757409716)
 
 ---
 
